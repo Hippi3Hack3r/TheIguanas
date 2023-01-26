@@ -16,6 +16,9 @@ They fall out of trees in florida when its too cold. :(
 2 floridaman fingernails
 
 #### 2: ####
+2 gator tails  
+a pinch of salt  
+2 tomatos
 
 ### Grilled Veggies
 
