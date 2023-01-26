@@ -1,10 +1,12 @@
 # IGUANAS #
 
 They fall out of trees in florida when its too cold. :(
-    See [This](https://www.fox13news.com/news/when-do-iguanas-fall-from-trees-in-florida-and-will-it-happen-on-christmas-day) article.
-    ![theiguana](download.jpeg)
 
+See [This](https://www.fox13news.com/news/when-do-iguanas-fall-from-trees-in-florida-and-will-it-happen-on-christmas-day) article.
+![theiguana](download.jpeg)
 
+iguanas only lived in South America until around 5 million years ago...
+Then the lizards came north
 ## Facts about Iguanas:
 
 * They worship the sun
