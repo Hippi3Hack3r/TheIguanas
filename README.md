@@ -9,3 +9,4 @@ They fall out of trees in florida when its too cold. :(
 
 * They worship the sun
 * They have another sensory organ on the top of their heads.
+* They like veggies
