@@ -20,6 +20,14 @@ Then the lizards came north
 * They cannot fly
 
 ## Recipes for Iguanas
+#### 1: ####
+3 apples
+2 floridaman fingernails
+
+#### 2: ####
+2 gator tails  
+a pinch of salt  
+2 tomatos
 
 ### Grilled Veggies
 
