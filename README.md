@@ -12,3 +12,5 @@ Then the lizards came north
 * They worship the sun
 * They have another sensory organ on the top of their heads.
 * They like veggies
+* It is not known that they can turn translucent
+* They cannot fly
