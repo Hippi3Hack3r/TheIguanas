@@ -15,3 +15,4 @@ Then the lizards came north
 * They worship the sun
 * They have another sensory organ on the top of their heads.
 * They like veggies
+* Iguanas eat bugs
