@@ -41,3 +41,18 @@ This is a recipe that only the coolest of Iguana's can appreciate.
 #### Instructions:
 
 FOR THE LOVE OF GOAT, DON'T BURN THE HOUSE DOWN
+
+### Bug Salad
+
+This is a recipe for the Iguana that needs a little more protein in their diet.
+
+#### Ingredients:
+
+- 2 cups minced flies
+- 1 cup group grasshoppers
+- 1/4 cup apple cider vinegar
+- 1/2 cup raisins
+
+#### Instructions:
+
+Mix and let chill for half an hour. Serve when cold. You do NOT want to taste this warm.
